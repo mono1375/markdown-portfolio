@@ -1,1 +1,1 @@
-[GitHub](github.com/mono1375)
+[GitHub](https://github.com/mono1375)
